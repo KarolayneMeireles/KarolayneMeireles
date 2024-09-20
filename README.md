@@ -7,4 +7,3 @@ Sou professora de Matemática/física
 Pós graduada em: Tecnologias Aplicadas à Educação
 
 Pós graduada em: Docência e Prática de Ensino em Matemática
-
